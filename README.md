@@ -1,1 +1,1 @@
-# Wireless_Power_Transmission_-Research_Paper-
+# Wireless_Power_Transmission_Research_Paper
